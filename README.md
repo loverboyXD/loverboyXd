@@ -145,11 +145,6 @@ Python        10 hrs 46 mins  ⣤⣀⣀⣀⣀⣀⣀⣀⣀⣀⣀⣀⣀⣀⣀⣀�
 
 <br>
 
-# Latest YouTube Videos⏯️:
-
-<!-- YouTube:START -->
-- [Become a Tech Expert | Learn from @Coding_champions](https://www.youtube.com/watch?v=LVtl1tmJtSE)
-<!-- YouTube:END -->
 
 # ❤️Visitors || Follower🖤
 
